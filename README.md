@@ -6,3 +6,7 @@
 
 # 注意事項
 私Hoshimikan6490とさんスケ！は、このアプリを使用したことによる、一切の責任を負いません。
+
+---
+# お問い合わせに関して
+ご不明な点は、私[Hoshimikan6490のTwitter](https://www.twitter.com/hoshimikan6490)のDMより、お願いいたします。
